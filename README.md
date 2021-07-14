@@ -1,0 +1,4 @@
+- Hi, I’m @TheGamerBOLL
+- I’m interested in programming
+- I’m currently learning general programming mostly trying to learn the basics.
+- I will mostly just post my test projects so i got an archive of what ive done.
